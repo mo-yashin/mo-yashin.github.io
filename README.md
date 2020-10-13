@@ -1,0 +1,1 @@
+# mo-yashin.github.io
